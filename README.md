@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @buccwashere
+- 👀 I’m interested in video games, sports, art, and music
+- 🌱 I’m currently learning how to make games and speak Italian
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me:
+  - Reddit: u/buccwashere
+  - Twitter: @pandasn1p3r
